@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do GabrielZTX 😁
+## Bem-vindo(a) ao perfil do GabrielZTX 
 
  <div>
    <a href="https://github.com/GabrielZTX">
